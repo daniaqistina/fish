@@ -1,4 +1,4 @@
-# Collect The Apple
+# Collect The Apple.
  Teammates  
 # Qistina  
 # Nabila  
